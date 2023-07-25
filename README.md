@@ -1,1 +1,1 @@
-# Parite_Analyse-des-Indicateurs-d-Egalite-Homme-Femme
+# Parité / Analyse des Indicateurs d'Égalité Homme/Femme
